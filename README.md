@@ -11,4 +11,4 @@
 * Aprender mucho
 
 ## Prediciendo el futuro
-![foto](https://i.gifer.com/kkL.mp4)
+![foto](https://c.tenor.com/1CnFSvfLeLsAAAAC/bug-programmer.gif)
