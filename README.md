@@ -11,4 +11,4 @@
 * Aprender mucho
 
 ## Prediciendo el futuro
-![foto](https://i.gifer.com/kkL.gif)
+![foto](https://i.gifer.com/kkL.mp4)
